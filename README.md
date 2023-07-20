@@ -6,3 +6,5 @@
 - 💬 I’m curious about anything fintech, accessibility, climate, blockchain and generative models! 
 - 😄 Pronouns: She/Her
 - 📫 How to reach me: anushka.punukollu@gmail.com
+
+<h2> 🚀 &nbsp;Some Tools I Love Working With</h2>
